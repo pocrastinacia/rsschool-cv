@@ -1,1 +1,1 @@
-# rsschool-cv
+https://pocrastinacia.github.io/rsschool-cv/cv
