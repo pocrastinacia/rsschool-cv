@@ -2,10 +2,10 @@
 
 ## Contacts
 
-* e-mail pocrastinacia@gmail.com 
-* Telegram @pocrastinacia
-* Github [@pocrastinacia](https://github.com/pocrastinacia)
-* +7 926 434 3940
+* e-mail _pocrastinacia@gmail.com_
+* telegram [_@pocrastinacia_](https://t.me/pocrastinacia)
+* github [_@pocrastinacia_](https://github.com/pocrastinacia)
+* phone _+7 926 XXX XX XX_
 
 ## Summary
 
